@@ -5,7 +5,7 @@
 -->
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on Gramedia Digital and Freelance
+- 🔭 I’m currently working Freelance
 - 💬 Ask me about anything
 - 📫 How to reach me: nawawi392@gmail.com
 - ⚡ Fun fact: build social relationships
